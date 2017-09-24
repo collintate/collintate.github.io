@@ -1,1 +1,0 @@
-# collintate.github.io
